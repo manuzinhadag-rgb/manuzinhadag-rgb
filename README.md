@@ -1,8 +1,8 @@
-# 👩🏻‍💻 Emanuele Ag
+# 👩🏻‍💻 Emanuele Ag✨
 
 **`Desenvolvedora FullStack`**
 
-Me chamo Emanuele de Assis Gomes ,sou natural do Estado de Goiás. Estou no ensino médio na Escola do Futuro: Paulo Renato de  Sousa , com o curso técnico em informática. Atualmente, estou cursando  Cibersegurança e Clould. Sou apaixonada por tecnologia🖥.
+Me chamo Emanuele de Assis Gomes ,sou natural do Estado de Goiás. Estou no ensino médio na Escola do Futuro: Paulo Renato de  Sousa , com o curso técnico em informática. Atualmente, estou cursando  Cibersegurança e Clould. Sou apaixonada por tecnologia🖥📈.
 
 </p>
 
